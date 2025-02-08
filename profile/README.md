@@ -4,9 +4,6 @@ We are agile.<br>
 We are fresh.<br>
 We know tech.<br>
 
-![ready-morpheus](https://github.com/user-attachments/assets/f691518f-c8a1-4189-a831-95aabf2acbdb)
-
-
 ...Please stop calling us squidward btw 🙏
 
 ## About
